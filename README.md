@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @Usha-ashu
 - 👀 I’m interested in Coding 
-- 🌱 I’m currently learning Engineering under the brach of Information science engineering
+- 🌱 I’m currently learning Bachelor of Enginering,Information Science Engineering
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me usha,hraju79ua@gmail.com
+- 📫 How to reach me usha.hraju79ua@gmail.com
 - 😄 Pronouns: English,Kannada,Hindi(understanding)
 - ⚡ Fun fact: i am more enthusiastic person
 
