@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Usha-ashu
+- 👋 Hi, I’m @Usha H
 - 👀 I’m interested in Coding 
 - 🌱 I’m currently learning Bachelor of Enginering,Information Science Engineering
 - 💞️ I’m looking to collaborate on ...
